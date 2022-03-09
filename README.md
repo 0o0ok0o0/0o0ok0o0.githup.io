@@ -1,1 +1,0 @@
-# 0o0ok0o0.githup.io
